@@ -18,4 +18,4 @@ do I take a break? Do I really want to? What will emerge next? what would taking
 
 how should I organize my day(s)?
 
-do I want to make tools? collages? I like making tools that I could "use" for something? So I want to make a game? I want to make more useless games, games that subvert themselves I guess.
+do I want to make tools? collages? I like making tools that I could "use" for something? So I want to make a game? I want to make more useless games, games that subvert themselves I guess. Need to keep thinking and writing, don't stop writing...
