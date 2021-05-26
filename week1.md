@@ -45,4 +45,4 @@ should also find a bunch of good resources to help stay up to date on art stuff.
 1. learn how to make a gif
 1. make a dancing creature
 1. put it into p5
-
+1. can I do it in Blender?
