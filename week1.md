@@ -29,3 +29,13 @@ thinking about potential art class. Want to make a list of resources for student
 ### May 25
 
 Applying for jobs... Do I want to be an assistant professor more than high school art teacher? Which is more realistic? or go back to being equipment tech person? B&H and RFCUNY contacts... will I start working on projects again soon?
+
+thinking about writing again... should I write some random stuff for future content? picturing a written work with my twisted creatures crwaling around it
+
+do I want to make more creatures right now? do I want to make a program? what do I feel like doing? Can I take a breath and not feel bad about not wanting to do stuff for fun? I still want to do stuff though. There is a difference there.
+
+take a break from applying to jobs tomorrow and just work on some fun stuff...
+
+its all about balance
+
+should also find a bunch of good resources to help stay up to date on art stuff...
