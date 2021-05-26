@@ -25,3 +25,7 @@ do I want to make tools? collages? I like making tools that I could "use" for so
 ### May 21
 
 thinking about potential art class. Want to make a list of resources for students for presentations. Rhizome, Ubu, eflux, museum websites, library? list of artists, topics, look at purchase classes
+
+### May 25
+
+Applying for jobs... Do I want to be an assistant professor more than high school art teacher? Which is more realistic? or go back to being equipment tech person? B&H and RFCUNY contacts... will I start working on projects again soon?
