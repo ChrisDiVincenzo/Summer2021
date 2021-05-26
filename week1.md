@@ -30,7 +30,7 @@ thinking about potential art class. Want to make a list of resources for student
 
 Applying for jobs... Do I want to be an assistant professor more than high school art teacher? Which is more realistic? or go back to being equipment tech person? B&H and RFCUNY contacts... will I start working on projects again soon?
 
-thinking about writing again... should I write some random stuff for future content? picturing a written work with my twisted creatures crwaling around it
+thinking about writing again... should I write some random stuff for future content? picturing a written work with my twisted creatures crwaling around it. Do i want to write a story? not exactly? but kinda less. lets explore this more. what is this impulse to write. I feel accomplished from the thesis paper. How can i do soemthing more like me in that medium? should it involve programing? Yes I think.
 
 do I want to make more creatures right now? do I want to make a program? what do I feel like doing? Can I take a breath and not feel bad about not wanting to do stuff for fun? I still want to do stuff though. There is a difference there.
 
