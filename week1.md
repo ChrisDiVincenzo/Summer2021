@@ -39,3 +39,10 @@ take a break from applying to jobs tomorrow and just work on some fun stuff...
 its all about balance
 
 should also find a bunch of good resources to help stay up to date on art stuff...
+
+### May 26
+
+1. learn how to make a gif
+1. make a dancing creature
+1. put it into p5
+
