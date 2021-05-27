@@ -49,4 +49,10 @@ should also find a bunch of good resources to help stay up to date on art stuff.
 
 ### May 27
 
+how do I embed this on here?
+
 <iframe src="https://editor.p5js.org/chrismdv00/embed/OpW0_wyOI"></iframe>
+
+^ guess I could put in on my html website like this... 
+
+do that at some point
