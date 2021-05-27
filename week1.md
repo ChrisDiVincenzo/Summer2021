@@ -46,3 +46,7 @@ should also find a bunch of good resources to help stay up to date on art stuff.
 1. make a dancing creature
 1. put it into p5
 1. can I do it in Blender?
+
+### May 27
+
+<iframe src="https://editor.p5js.org/chrismdv00/embed/OpW0_wyOI"></iframe>
