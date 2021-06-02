@@ -2,4 +2,4 @@
 
 ### June 2!
 
-talking easy this week I guess, memorial day, lots of stuff... need to reorganize...
+talking easy this week I guess, memorial day, lots of stuff... need to reorganize... gotta put more photos in this thing!
