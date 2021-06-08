@@ -1,3 +1,64 @@
-## A New Post
+## June 8
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+- Video journal?
+- what would that look like?
+- need to combine/collage
+- or do I want to focus on programs?
+- what do I want to make? another "painting" program
+- something that produces random experiences....
+- something that incorpoates video aspect? - or is that not really important to me?
+- needs to incorpate animation
+- photo/videos of myself
+- "quotes"
+- what do I want to talk about?
+- what am I thinking about?
+- art is reflection
+- am I useless?
+- daydreams and nightmares
+- uncontrollable futures
+- lost/stuck on the moon, or on Mars
+- sci - fi or fantasy?
+- what am I, a cyborg still?
+- or a computer?
+- don't be frustrated, make what you want to make, do I want to paint?
+- do I want to make robot love stories?
+- can I simulate robot love stories?
+- be in discussion with the better (future) verison of yourself
+- literally?
+- who am I?
+- what is the function of art?
+- what is thinking?
+- life/living is abusrdity
+- how do I get started
+- what is my easy starting place...
+- make a sketch of yourselve thinking to yourself in the future
+- in space?
+- in somewhere elsewhere, a dreamworld of the future
+- who are you?
+- does there need to be conflict?
+- is this a story or is it something else?
+- everything is a story
+- a painting program is a story
+- what story am I writing?
+- do I want to write a story?
+- or a poem
+- what am i doing here
+- where is my easy starting place
+- how can I begin
+- nature?
+- amalgamation
+- taking videos
+- where is my relentlessness
+- am i too anxious about getting a job to do that thing(s) that make me happy?
+- how can I be happy then?
+- what is an easy art thing I can do to be happy while being too anxious to think up a whole project?
+- can I validate buying raspberry pis?
+- what else can I record
+- can a whole series with Arty?
+- why not, I haven't really used him much yet
+- could even do something with stop motion?
+- ok so, make a sketch, make a couple for characters? 
+- animate them, make them scenes
+- make a video diary for Arty
+- make more diagrams, why do I stop that?
+
