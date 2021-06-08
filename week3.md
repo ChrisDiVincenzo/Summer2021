@@ -61,4 +61,6 @@
 - animate them, make them scenes
 - make a video diary for Arty
 - make more diagrams, why do I stop that?
+- randomize something
+- gameify something
 
