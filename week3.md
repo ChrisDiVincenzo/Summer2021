@@ -63,4 +63,5 @@
 - make more diagrams, why do I stop that?
 - randomize something
 - gameify something
+- be funny!
 
