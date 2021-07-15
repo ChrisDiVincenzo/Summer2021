@@ -28,4 +28,8 @@ Make a sketch and then watch an old movie.
 
 fuck i have no pencils lol
 
+DIAGRAMS!!!!
+
+Make diagrams everyday
+
 
