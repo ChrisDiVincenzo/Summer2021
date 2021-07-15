@@ -25,3 +25,7 @@ _What are my starting places?_
 1. plants/roots
 
 Make a sketch and then watch an old movie. 
+
+fuck i have no pencils lol
+
+
