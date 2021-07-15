@@ -23,3 +23,5 @@ _What are my starting places?_
 1. aliens as capitalists, vice versa
 1. multiple dimensions/selves
 1. plants/roots
+
+Make a sketch and then watch an old movie. 
