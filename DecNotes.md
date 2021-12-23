@@ -21,3 +21,9 @@ Don't need to do everything, don't overwhelm yourself!
 
 Am i a digital artist? Do I still want to be? Does it bother me if I am not? What do I want to be? What will make me happy?
 
+WEEPING WILLIE!
+
+Make an adult picture book, then digitize and gamify it?
+
+Honestly done with video? just not feeling it, need to move towards what is making me happy right now, collage diagram physical stuff that I can enter into digital world!
+
